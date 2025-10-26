@@ -1,0 +1,12 @@
+![51dN8aMj7iL _AC_](https://github.com/user-attachments/assets/b6b98a2e-c61c-47c2-8b53-633e89c85e24)
+![51Vrctd+dDL _AC_SL1500_](https://github.com/user-attachments/assets/5ef6a6e1-be8f-4dab-8066-087d283ade45)
+![elastic band00_](https://github.com/user-attachments/assets/160052d5-4c94-4721-b673-d8374712481f)
+![71s9NKZbZML _AC_UF1000,1000_QL80_](https://github.com/user-attachments/assets/d9c2503f-2ea3-46d5-87a1-fa0087594aa0)
+<img width="1200" height="1920" alt="LongScreenshot_20250704-172016" src="https://github.com/user-attachments/assets/232ac350-e22f-4245-9d42-4f172bb0a081" />
+![1726195449423889052](https://github.com/user-attachments/assets/8c437449-e8ca-4d9e-9cf6-022893f1998e)
+![200ul-disposable-sterile-plastic-filter-pipette-tips-96-wells-rack-pipette-tips1-0084173001623747868 jpg](https://github.com/user-attachments/assets/1f183c7f-2e35-4c4a-a67e-f0ce5995f179)
+![1727503740502490144](https://github.com/user-attachments/assets/4e58f9b8-b5ee-475e-af4c-686139205b1f)
+![20613_product_1751267860](https://github.com/user-attachments/assets/6786cb5e-3123-4c20-bce5-c2f403e8f348)
+![laboratory-biotechnology-molecular-biological-equipment-isolated-on-white-background-2GDKGWB](https://github.com/user-attachments/assets/4c9cd5f8-0e29-411d-b423-987c3fad583c)
+![vector-art-medical-heartbeat-stethoscope-logo-symbol-healthcare-medicine-cardiology-clean-modern-features-403182577](https://github.com/user-attachments/assets/d30209cf-ebf7-41ab-b099-02a2059d76b5)
+![IMG-20251023-WA0001](https://github.com/user-attachments/assets/a9aa38f4-af20-437a-aecc-c43515a2ed6a)
