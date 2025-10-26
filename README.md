@@ -10,4 +10,3 @@
 ![20613_product_1751267860](https://github.com/user-attachments/assets/6786cb5e-3123-4c20-bce5-c2f403e8f348)
 ![laboratory-biotechnology-molecular-biological-equipment-isolated-on-white-background-2GDKGWB](https://github.com/user-attachments/assets/4c9cd5f8-0e29-411d-b423-987c3fad583c)
 ![vector-art-medical-heartbeat-stethoscope-logo-symbol-healthcare-medicine-cardiology-clean-modern-features-403182577](https://github.com/user-attachments/assets/d30209cf-ebf7-41ab-b099-02a2059d76b5)
-![IMG-20251023-WA0001](https://github.com/user-attachments/assets/a9aa38f4-af20-437a-aecc-c43515a2ed6a)
