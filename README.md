@@ -8,5 +8,4 @@
 ![200ul-disposable-sterile-plastic-filter-pipette-tips-96-wells-rack-pipette-tips1-0084173001623747868 jpg](https://github.com/user-attachments/assets/1f183c7f-2e35-4c4a-a67e-f0ce5995f179)
 ![1727503740502490144](https://github.com/user-attachments/assets/4e58f9b8-b5ee-475e-af4c-686139205b1f)
 ![20613_product_1751267860](https://github.com/user-attachments/assets/6786cb5e-3123-4c20-bce5-c2f403e8f348)
-![laboratory-biotechnology-molecular-biological-equipment-isolated-on-white-background-2GDKGWB](https://github.com/user-attachments/assets/4c9cd5f8-0e29-411d-b423-987c3fad583c)
 ![vector-art-medical-heartbeat-stethoscope-logo-symbol-healthcare-medicine-cardiology-clean-modern-features-403182577](https://github.com/user-attachments/assets/d30209cf-ebf7-41ab-b099-02a2059d76b5)
